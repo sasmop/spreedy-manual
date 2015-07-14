@@ -1,0 +1,1 @@
+# spreedy-manual
